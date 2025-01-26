@@ -1,4 +1,1 @@
 # Prueba_Programacion
-
-UNIVERSIDAD DE LAS FUERZAS ARMADAS ESPE
-sexxxxxxxxxxxxxxxxxxxxxxxxxooooooooooooooooooooo
